@@ -1,0 +1,2 @@
+# Tessarion-x-tech-inc
+Tessarion-X Tech-Inc — pioneering modular habitats, interplanetary EVs, AI identity security, and a unified space-to-Earth innovation ecosystem. Built for futurists, secured by design.
